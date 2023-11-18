@@ -5,6 +5,8 @@
 - 📫 How to reach me... best way is to message me on here I guess👻
 
 My name is Lovey! I am trying out the new things!
+
+I will make a solid project soon and start applying to internships. 
 <!---
 Lovey1001/Lovey1001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
